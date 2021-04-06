@@ -24,3 +24,5 @@ Answer:
 
 
 Source of Riddle: http://journal.sjdm.org/17/171117/jdm171117.html
+
+What psychological principle is illustrated in the riddle?
